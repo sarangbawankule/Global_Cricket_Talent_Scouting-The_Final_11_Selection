@@ -1,1 +1,1 @@
-# -Global_Cricket_Talent_Scouting-The_Final_11_Selection
+# Global_Cricket_Talent_Scouting-The_Final_11_Selection
